@@ -1,0 +1,1 @@
+All rights of these images go to their respective owners. Besides the rights of the owners, there are no additional usage terms. Use at your own risk!
